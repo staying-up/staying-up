@@ -1,4 +1,4 @@
-i love logo from arknihht im so him trist
+i love logo from arknihht im so him trist hes so my comofrt pony pelasw, usijg him 24/7 formwno on
 
 remaking everythijg once i have time
 
