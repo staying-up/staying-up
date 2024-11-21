@@ -38,6 +38,9 @@ i loev men i loev men i love him sm man why are men so hot like..
 
 [support gaza!](https://rentry.co/hearts4gaza)
 ||
+[rentry ^_^](https://rentry.co/rinniz)
+
+||
 [shared rentry with sol :3](https://rentry.co/sharedbetweengays)
 ||
 [RENTRY (THANKS SOL 4 THE RENTRY !!)](https://rentry.co/kai-angel)
