@@ -2,6 +2,8 @@ i love logo from arknihht im so him trist hes so my comofrt pony pelasw, usijg h
 
 remaking everythijg once i have time
 
+i am not changing my pfp till that twink comes back
+
 ---
 ![Untitled1_20241120224324](https://github.com/user-attachments/assets/5610a58a-e0c6-4bef-b61c-9854d19439a4)
 ‎
