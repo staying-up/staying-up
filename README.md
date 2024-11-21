@@ -2,7 +2,7 @@ i love logo from arknihht im so him trist hes so my comofrt pony pelasw, usijg h
 
 remaking everythijg once i have time
 
-i am not changing my pfp till that twink comes back
+i am NOT changing my pfp till that TWINK comes back
 
 ---
 ![Untitled1_20241120224324](https://github.com/user-attachments/assets/5610a58a-e0c6-4bef-b61c-9854d19439a4)
@@ -16,7 +16,7 @@ nicknames are fine with me, i love nicksnmes sm^_^
 
 i'm 14teen, please iwec if your 18+. 
 
- i have internet humor so please bare with me..  >_<
+ i have internet humor so please bare with me..  >_
 
 i loev men i loev men i love him sm man why are men so hot like..
 
